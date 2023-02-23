@@ -1,1 +1,1 @@
-# ProyectoConjunto_KH_Pe-a_LA_Barriga
+# ProyectoConjunto_KH_Pena_LA_Barriga
